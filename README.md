@@ -1,2 +1,2 @@
-# Projekts-program-ana-Junkers-Ceri-
+# Projekts-programesana-Junkers-Ceri-
 Krišjāņa Junkera un Jāņā ceriņa projekts
